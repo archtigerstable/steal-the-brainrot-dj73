@@ -1,4 +1,4 @@
-
+steal the brainrot base new Script offers the most advanced steal the brainrot base Script, with auto-heal and auto-sell. Perfect for dominating any
 
 
 
